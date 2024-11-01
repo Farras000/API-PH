@@ -1,0 +1,1 @@
+parid anjing
